@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @sooakimd
+- 👀 I’m interested in op
